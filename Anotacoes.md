@@ -1,6 +1,3 @@
-
-
-
 ![](./anota.jpg)
 
 #Anotações do dia 24/03 
